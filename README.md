@@ -7,7 +7,7 @@ Meu nome é Sara toledo
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você pode entrar em contato comigo📫
-saramoraes2212@gmail.com
+sarahexe@gmail.com
 
 
 
