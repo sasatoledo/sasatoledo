@@ -6,11 +6,8 @@ Meu nome é Sara toledo
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você pode entrar em contato comigo📧
+### Você pode entrar em contato comigo📫
 saramoraes2212@gmail.com
 
 
 
-
-
-![](https://tenor.com/pt-BR/view/oyennn-bunga-gif-15611047934907268381)
